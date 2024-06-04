@@ -4,3 +4,6 @@ https://www.vecteezy.com/png/35754835-ai-generated-white-milk-splash-isolated-on
 https://www.vecteezy.com/free-png/milk-splash">Milk Splash PNGs by Vecteezy \
 Free License
 Attribution Required 
+
+**2. Yakult Image** \
+https://www.yakultusa.com/products/
